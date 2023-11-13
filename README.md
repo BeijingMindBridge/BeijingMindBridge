@@ -18,8 +18,8 @@
 
 欲了解更多信息，请联系我们：
 
-- 邮箱：[info@siweiqiao.com](mailto:info@siweiqiao.com)
-- 电话：+86-10-1234-5678
-- 地址：北京市海淀区思维桥路88号
+- 邮箱：[mbridgepeking@gmail.com](mbridgepeking@gmail.com)
+- 电话：+86-15623456912
+
 
 我们期待与您合作，共同推动教育和科技的发展！
